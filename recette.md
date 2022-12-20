@@ -1,6 +1,6 @@
 Modification recette 10 personnes
 
-Voici la recette pour deux personnes : 
+Voici la recette pour dix personnes : 
 
 • 40 cl de rhum blanc
 • 20 cl de sirop de sucre de canne
