@@ -1,9 +1,9 @@
-Modification recette 10 personnes
+Modification recette ingrédient indigeste 
 
-Voici la recette pour dix personnes : 
+Voici la recette pour branche malade : 
 
 • 40 cl de rhum blanc
-• 20 cl de sirop de sucre de canne
+• 20 cl de sirop d'érable
 • 60 feuilles de menthe
 • 5 citron vert
 • 200 cl d'eau gazeuse
